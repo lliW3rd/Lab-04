@@ -5,6 +5,6 @@ October 8th, 2018
 
 William Kirkpatrick
 
-Worked with Brandon Ensley
+Worked with Brandon Ensley, Kirk Anderson
 
 
